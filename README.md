@@ -3,7 +3,7 @@ Hi, welcome to my GitHub!
 
 ✧ ೃ༄*ੈ✩
 
-[<img width="330" height="259" alt="image" src="https://github.com/user-attachments/assets/6bc368a8-7a70-4d7a-80c4-94bafde5b186" />](https://static.wikia.nocookie.net/cookierunkingdom/images/5/51/Cookie0605-cookie0605-hammer.gif/revision/latest?cb=20250117015646)
+![slack-imgs](https://github.com/user-attachments/assets/d2615231-ce92-418a-91a5-a6d2ad8c4d71)
 
 
 ^(He is so me fr ToT)^
@@ -38,7 +38,8 @@ Espresseleine
 
 (If you don't like them and choose to hate them(If you don't like them with a valid opinion, that's ok :3), then I don't like you, so back your nasty ass off before I get the raid spray)
 
-Other reasons for blocking, hiding, or no int:
+ο(=•ω＜=)ρ⌒☆
+**Other reasons for blocking, hiding, or no int:**
 
 You are uncomfy with minors
 

@@ -37,3 +37,17 @@ GoldenLily
 Espresseleine
 
 (If you don't like them and choose to hate them(If you don't like them with a valid opinion, that's ok :3), then I don't like you, so back your nasty ass off before I get the raid spray)
+
+Other reasons for blocking, hiding, or no int:
+
+You are uncomfy with minors
+
+Preditor or PDF.file (p3d0)
+
+Porships
+
+Drama starter
+
+Racist, sexist, homophobic, or transphobic
+
+Anti-furry, therian, otherkin, etc. (I heavily support, and I am a furry so dw we can chill if u want)

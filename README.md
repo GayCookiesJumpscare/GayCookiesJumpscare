@@ -1,4 +1,4 @@
-# GayCookiesJumpscare ![](https://komarev.com/ghpvc/?username=GayCookiesJumpscare&Label=CookiesCrumbled&color=blue)
+# GayCookiesJumpscare ![](https://komarev.com/ghpvc/?username=your-github-username&label=cookies-crumbled&color=blue)
 
 
 Hi, welcome to my GitHub! All my ponies are linked here!

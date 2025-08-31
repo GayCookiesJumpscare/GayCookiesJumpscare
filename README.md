@@ -14,10 +14,10 @@ One Piece ships:
 KobyLu
 
 CRK ships:
-ShadowVanilla
-Airfryer
-HollySugar
-GoldenLily
+ShadowVanilla,
+Airfryer,
+HollySugar,
+GoldenLily,
 Espresseleine
 
 (If you don't like them and choose to hate them, then I don't like you, so back your nasty ass off before I get the raid spray. (If you don't like them with a valid opinion, that's ok :3))

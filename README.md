@@ -18,4 +18,4 @@ _ . . . . . . . ︿ ❀ ︿ . . . . . . . _
 - Racist, sexist, homophobic, or transphobic
 - Anti-furry, therian, otherkin, etc. (I heavily support, and I am a furry, so dw we can chill if u want)
 
-Notice how I haven't changed my profile since like.. forever? Well, that's because I've had little time to update this account or actually play Pony Town! Sorry to anyone who might have wanted me to get online (aka no one lol). I will try to play more often, so I hope you guys are looking forward to seeing me around! 
+I need to stop upd8ing this every five minutes. but uhh why are there so many Homestucks on pt? Guys I lwk did not expect to see u here! I wish I wasn't shy so we could all be friends and live happily ever after? That'd b such a vibe jus sayin.

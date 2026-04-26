@@ -4,10 +4,7 @@
 Hi, welcome to my GitHub! All my ponies are linked here!
 
 ✧ ೃ༄*ੈ✩
-![slack-imgs](https://github.com/user-attachments/assets/d2615231-ce92-418a-91a5-a6d2ad8c4d71)
-
-
-^(He is so me fr ToT)^
+Looking for friends ages 13-16, int if ur comfy with it!
 _ . . . . . . . ︿ ❀ ︿ . . . . . . . _
 
 ο(=•ω＜=)ρ⌒☆

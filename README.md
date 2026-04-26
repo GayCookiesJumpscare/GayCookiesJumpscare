@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=GayCookiesJumpscare&label=Cookies_Crumbled&color=blue)
+![](https://komarev.com/ghpvc/?username=GayCookiesJumpscare&label=Bitches_who_fumbled&color=blue)
 
 (GRR ran out of space in the bio thingy! I only follow back Pony Town accounts!!)
 Hi, welcome to my GitHub! All my ponies are linked here!

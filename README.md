@@ -18,4 +18,6 @@ _ . . . . . . . ︿ ❀ ︿ . . . . . . . _
 - Racist, sexist, homophobic, or transphobic
 - Anti-furry, therian, otherkin, etc. (I heavily support, and I am a furry, so dw we can chill if u want)
 
+Ya'll like my incoherent Joel G?🥺
+
 I need to stop upd8ing this every five minutes. but uhh why are there so many Homestucks on pt? Guys I lwk did not expect to see u here! I wish I wasn't shy so we could all be friends and live happily ever after? That'd b such a vibe jus sayin.

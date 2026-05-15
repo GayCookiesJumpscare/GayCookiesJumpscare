@@ -5,7 +5,7 @@ Hi, welcome to my GitHub! All my ponies are linked here!
 
 ✧ ೃ༄*ੈ✩
 Looking for friends ages 13-16, int if ur comfy with it!
-If you want to message me on discord you should talk to me on Pony Town first! Discord: _gregory_.
+If you want to message me, try to do that when I'm online. I'd hate to have responded or accepted your friend request late! Discord: _gregory_.
 _ . . . . . . . ︿ ❀ ︿ . . . . . . . _
 
 ο(=•ω＜=)ρ⌒☆
